@@ -10,7 +10,7 @@
 <p><strong>yumestatus: non sharing :<</strong></p>
 <p><sub>i love you roach i love u (makarov i like u a little..)</sub></p>
 <p><sub>i love mi friends stanley, dee, kon, willow, logan, aleksei, vinn, and more :3  </sub></p>
-https://www.tiktok.com/@deathroaches 𝓽𝓲𝓴𝓽𝓸𝓴 ! (i happily moot just ask)
+https://www.tiktok.com/@deathroaches 𝓽𝓲𝓴𝓽𝓸𝓴 ! (i moot sometimes just ask)
 </td>
 <td width="36%" valign="middle" align="center">
 
