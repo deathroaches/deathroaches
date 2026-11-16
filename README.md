@@ -13,7 +13,7 @@
 https://www.tiktok.com/@puppydoll_1 𝓽𝓲𝓴𝓽𝓸𝓴 ! (i happily moot just ask)
 </td>
 <td width="36%" valign="middle" align="center">
-<img src="https://github.com/user-attachments/assets/16b7753e-9892-455f-bbea-81acf2aae611" width="180"/>
+
 </td>
 </tr>
 </table>
