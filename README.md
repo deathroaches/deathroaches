@@ -10,7 +10,7 @@
 <p><strong>mostly always in my makarov skin bcs hes a silly vodka drinker ;-;</strong></p>
 <p><sub>fictkin/kin: roach sanderson :3</sub></p>
 <p><sub>i like mi friends stanley, dee, kon, willow, logan, aleksei, vinn, nix, and more !! (if we're close i gift things like supporter and nitro :33)  </sub></p>
-<p><strong>byi: understand if you think your highkey a really sensitive person, its better not to int with me for ur own comfort (,,>﹏<,,)</strong></p>
+<p><strong>byi: understand if you think you're highkey a really sensitive person, its better not to int with me for ur own comfort (,,>﹏<,,)</strong></p>
 https://www.tiktok.com/@deathroaches 𝓽𝓲𝓴𝓽𝓸𝓴 ! (i moot sometimes just ask)
 </td>
 <td width="36%" valign="middle" align="center">
