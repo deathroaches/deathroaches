@@ -5,7 +5,7 @@
 <td width="64%" valign="middle">
 
 <h1>about me</h1>
-<h2>⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔</h2>
+<h2><img width="601" height="16" alt="883x70" src="https://github.com/user-attachments/assets/5032e4b2-0b91-4428-966b-834c6630cff9" /></h2>
 <p>hai i go by roach mostly, i dont talk alot unless with my friends but int or c+h if u want :3
 <p><sub>kins: roach sanderson, morty smith >_<</sub></p>
 <p><strong>byi: understand if you think you're highkey a really sensitive person, its best not to int with me since i can be mean („• ⤙ •„)</strong></p>
