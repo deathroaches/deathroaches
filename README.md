@@ -17,5 +17,6 @@ https://www.tiktok.com/@deathroaches tiktok ! (i moot sometimes just ask)
 </tr>
 </table>
 </div>
-
-<h2><img width="480" height="282" alt="giphy" src="https://github.com/user-attachments/assets/13283e51-4712-4222-a955-36df81be2ff1"/></h2>
+<p align="centre">
+ <img width="480" height="282" alt="giphy" src="https://github.com/user-attachments/assets/13283e51-4712-4222-a955-36df81be2ff1"/>
+</p>
