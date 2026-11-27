@@ -17,7 +17,7 @@
 </tr>
 </table>
 </div>
-<p align="centre">
- <img width="856" height="500" alt="giphy" src="https://github.com/user-attachments/assets/13283e51-4712-4222-a955-36df81be2ff1"/>
-</p>
+
+<h2><img width="856" height="500" alt="giphy" src="https://github.com/user-attachments/assets/13283e51-4712-4222-a955-36df81be2ff1"/><h2>
+
 
