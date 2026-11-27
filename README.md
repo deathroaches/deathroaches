@@ -4,7 +4,7 @@
 <tr>
 <td width="64%" valign="middle">
 
-<h1>⋆. 𐙚˚࿔ 𝖆𝖇𝖔𝖚𝖙 𝖒𝖊 𝜗𝜚˚⋆</h1>
+<h1>about me</h1>
 <h2>⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔</h2>
 <p>hai i go by roach mostly, i dont talk alot unless with my friends but int or c+h if u want :3
 <p><sub>kins: roach sanderson, morty smith >_<</sub></p>
