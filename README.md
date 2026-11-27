@@ -6,9 +6,10 @@
 
 <h1>⋆. 𐙚˚࿔ 𝖆𝖇𝖔𝖚𝖙 𝖒𝖊 𝜗𝜚˚⋆</h1>
 <h2>⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔</h2>
-<p>hai i go by roach / hami , i dont talk alot unless with my friends but int or c+h if u want :3 
-<p><strong>byi: understand if you think you're highkey a really sensitive person, its better not to int with me for ur own comfort since i can be kind of mean (,,>﹏<,,)</strong></p>
-https://www.tiktok.com/@deathroaches 𝓽𝓲𝓴𝓽𝓸𝓴 ! (i moot sometimes just ask)
+<p>hai i go by roach mostly, i dont talk alot unless with my friends but int or c+h if u want :3
+<p><sub>kins: roach sanderson, morty smith >_<</sub></p>
+<p><strong>byi: understand if you think you're highkey a really sensitive person, its best not to int with me since i can be mean („• ⤙ •„)</strong></p>
+https://www.tiktok.com/@deathroaches tiktok ! (i moot sometimes just ask)
 </td>
 <td width="36%" valign="middle" align="center">
 
