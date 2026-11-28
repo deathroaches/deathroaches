@@ -9,6 +9,7 @@
 <p>hai i go by roach mostly, i dont talk alot unless with my friends but int or c+h if u want :3
 <p><sub>kins: roach sanderson, morty smith >_<</sub></p>
 <p><strong>byi: understand if you think you're highkey a really sensitive person, its best not to int with me since i can be a bit mean („^ ⤙ ^„)</strong></p>
+<p><sub>@ann1hilation has #rosefarts >.<</sub></p>
 <a href="https://www.tiktok.com/@deathroaches">click here for my tiktok !</a> (i moot sometimes just ask)
 </td>
 <td width="36%" valign="middle" align="center">
